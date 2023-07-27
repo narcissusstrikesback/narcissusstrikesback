@@ -1,1 +1,1 @@
-minor | any pronouns | penis penis penis hahahahhaanhhahahahahha
+minor | they/he | penis penis penis hahahahhaanhhahahahahha
